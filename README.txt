@@ -1,0 +1,1 @@
+Shoppe main page clone by LixxKook Available at : https://lixxkook00.github.io/shopee/
